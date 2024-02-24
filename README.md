@@ -1,1 +1,1 @@
-Dive Safe Academy in Birmingham offers exceptional driving instruction, renowned for its comprehensive curriculum and experienced instructors. With a focus on safety and proficiency, students receive personalized attention and practical training to become confident and skilled drivers. Whether learning to drive for the first time or seeking advanced techniques, Dive Safe Academy stands out for its commitment to excellence and producing competent drivers ready for the road.
+
